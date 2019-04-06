@@ -24,9 +24,15 @@ Please would you do me the favor, by answering some questions.
 Please avoid one word answers... 
 
 Q1: Tell me about your hobby or things you like to do in your free time
+Karen: I like to hang out with my family.  We enjoy going on vacation to Disney World. We usually go to all the parks when we go.  I like Epcot the best because it has rides and you can visit the World Showcase.  I like riding all the rides! 
 
 Q2: What is your favorite Book/Movie? Tell me why you like this book.
+Karen:  I don't really have a favorite.  I like all movies.  Books..well I don't really enjoy reading. 
 
 Q3: What is your favorite restaurant to eat at? What is your favorite dish there?
+Karen: I have several favorite restaurants. I have listed two of them. 
+    1. Texas Roadhouse - I like the Dallas Filet
+    2. Max and Ermas - I like too many things to list them out. 
 
 Q4: What is your favorite color?
+Karen: My favorite colors are blue and orange. 
